@@ -8,4 +8,5 @@ This is a list of buinesses who are supporting the occupation in Wellington and 
 
 
 ## Updates
-Please submit a pull request.
+Please submit a pull request. 
+* Please include link, photo, video, etc to show their support of the occupation.
