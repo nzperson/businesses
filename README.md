@@ -5,6 +5,8 @@ This is a list of buinesses who are supporting the occupation in Wellington and 
   * Seen in video https://www.stuff.co.nz/national/health/coronavirus/127830920/tell-the-protesters-to-go-home-movements-against-wellington-protests-fire-up
 * Donut Express
   * Many photos e.g. https://www.stuff.co.nz/dominion-post/news/wellington/127744172/wellington-businesses-and-workers-disrupted-by-protest
+* Vvmylk
+  * Photo https://twitter.com/twelvebarjosh/status/1495225906033422338
 
 
 ## Updates
